@@ -21,6 +21,6 @@ For any queries contact ssuparno1998@gmail.com or use mailto for sending verifie
 
 If you like this effort please put a star to show support
 
-Quarantine Day - 6 
+Quarantine Day - 7
 
 Suparno Karmakar  March 2020
